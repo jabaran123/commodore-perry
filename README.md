@@ -1,4 +1,4 @@
-Commodore PerryDate:
+Commodore Perry
 c. 1853/54
 
 Artist: unknown (Japanese)
